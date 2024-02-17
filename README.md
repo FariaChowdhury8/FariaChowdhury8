@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on GitHub
 - 🤔 I’m looking for help with ... 
 - 💬 Ask me about Web Development
-- 📫 How to reach me: faeiachowdhurys2004@gmail.com
+- 📫 How to reach me: fariachowdhurys2004@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I think I am funny
 
