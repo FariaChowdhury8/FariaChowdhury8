@@ -1,5 +1,3 @@
-https://web.facebook.com/photo/?fbid=670154065330251&set=a.146487557696907
-
 ## Hi there 👋 I'm Faria Chowdhury
 Web Designer from Bangladesh
 
